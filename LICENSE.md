@@ -1,4 +1,4 @@
-
+Experience rivals like never before with elite rivals Scripts, the #1 Script. Includes instant win and auto-collect for unbeatable performance.
 
 
 
